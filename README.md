@@ -8,6 +8,9 @@ Reimagining job hunting in an engaging and productive way!
 https://youtu.be/0EDKDWhR2Do
 
 ## Screenshots:
+![vsdwnwp5e5hr06wab2fe](https://github.com/user-attachments/assets/fb58cfdb-1032-4485-a294-c4fba01ada12)
+
+![vuaboxtsfta8npmyhu1f](https://github.com/user-attachments/assets/7d2a153c-7091-445c-b9fe-25408dc9f467)
 
 ![image](https://github.com/user-attachments/assets/c88d4a6e-df5d-4375-9b2e-e8b89d5b6da4)
 
